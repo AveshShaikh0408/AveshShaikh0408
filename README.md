@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **avesh0408@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16dyfXMAT_kCiLp4hCPQEFUyYi8ce5gxm/view](https://drive.google.com/file/d/16dyfXMAT_kCiLp4hCPQEFUyYi8ce5gxm/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/16dyfXMAT_kCiLp4hCPQEFUyYi8ce5gxm/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
